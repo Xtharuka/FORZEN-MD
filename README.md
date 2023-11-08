@@ -1,2 +1,2 @@
-# FORZEN-MD
-ʏᴀsɪʏᴀ ᴏғᴄ 💃🏼
+# tharuka md 
+Xtharuka ᴏғᴄ 💃🏼
