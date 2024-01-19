@@ -1,6 +1,5 @@
 # tharuka md 
 Xtharuka ᴏғᴄ 💃🏼
-# ABHISHEK-SER
 <div align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E60202&random=false&width=435&lines=coded+by+Xtharuka+randima+;I%22m+tharuka+randima+" alt="Typing SVG" /></a>
   
@@ -15,7 +14,7 @@ Xtharuka ᴏғᴄ 💃🏼
 <a 
 
 ####  
-ABHISHEK-SER Multi Device Whatsapp Bot.
+Xtharuka Multi Device Whatsapp Bot.
 
 ***
 
